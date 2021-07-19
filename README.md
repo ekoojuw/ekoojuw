@@ -2,7 +2,13 @@
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 
+Whatsapp : 08988161505
+Gmail : biyantptr15@gmail.com
+Instagram : instagram.com/ekoojuw
+Twitter : twitter.com/ehbiyan
+Linkedln : Linkedln/biyantptr15
+
 
 <!---
 ekoojuw/ekoojuw is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
