@@ -5,7 +5,7 @@
 - 📫 
 Whatsapp : 08988161505
 Gmail : biyantptr15@gmail.com
-Instagram : instagram.com/ekoojuw
+Instagram : https://www.instagram.com/ekoojuw/
 Twitter : twitter.com/ehbiyan
 Linkedln : Linkedln/biyantptr15
 
