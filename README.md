@@ -3,11 +3,11 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 
-Whatsapp : 08988161505
-Gmail : biyantptr15@gmail.com
-Instagram : instagram.com/ekoojuw
-Twitter : twitter.com/ehbiyan
-Linkedln : Linkedln/biyantptr15
+●08988161505
+○biyantptr15@gmail.com
+●instagram.com/ekoojuw
+○twitter.com/ehbiyan
+●Linkedln/biyantptr15
 
 
 <!---
