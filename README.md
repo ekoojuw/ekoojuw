@@ -1,13 +1,9 @@
-- 👋 Hi, I’m @ekoojuw
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 
-Whatsapp : 08988161505
-Gmail : biyantptr15@gmail.com
-Instagram : instagram.com/ekoojuw
-Twitter : twitter.com/ehbiyan
-Linkedln : Linkedln/biyantptr15
+👋 Hi, I’m @ekoojuw
+♤ +628988161505
+♧biyantptr15@gmail.com
+♤instagram.com/ekoojuw
+♧twitter.com/ehbiyan
+♤Linkedln/biyantptr15
 
 
 <!---
